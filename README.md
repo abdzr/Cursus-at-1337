@@ -1,1 +1,1 @@
-# Cursus-at-1337
+# Cursus at 1337
